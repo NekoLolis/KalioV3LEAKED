@@ -1,6 +1,6 @@
 ```txt
 # KalioV3LEAKED
-KalioV3 Made By Kyroxy#2553 LEAKED LMAOO
+KalioV3 Made By Kyroxy#2553 LEAKED
 
 
  _  __ ____  _     _  ____  _    _____    _     _____ ____  _  __ _____ ____ 
